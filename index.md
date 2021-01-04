@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Good day all!
 
 I'm glad you are here. I plan to talk about ...
